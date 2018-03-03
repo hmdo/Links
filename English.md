@@ -1,37 +1,37 @@
-1. httl://TED.com- Những ý tưởng đáng để chia sẻ. Một trong các trang web yêu thích của H. Có rất nhiều chủ đề/lĩnh vực, trình bày bởi những người giỏi/thú vị nhất trong các lĩnh vực đó. Các bài nói đều có sub tiếng Anh (nhiều bài có cả tiếng Việt). Bài nói cũng được viết thành bản viết để bạn có thể đọc. Cứ chịu khó đọc, nghe, bắt chước nói theo,... đảm bảo tiếng Anh sẽ lên. Nhiều chủ đề nên bạn có thể học được rất nhiều từ mới cũng như nắm bắt được kiến thức của nhiều ngành khác nhau.
+1. http://TED.com- Những ý tưởng đáng để chia sẻ. Một trong các trang web yêu thích của H. Có rất nhiều chủ đề/lĩnh vực, trình bày bởi những người giỏi/thú vị nhất trong các lĩnh vực đó. Các bài nói đều có sub tiếng Anh (nhiều bài có cả tiếng Việt). Bài nói cũng được viết thành bản viết để bạn có thể đọc. Cứ chịu khó đọc, nghe, bắt chước nói theo,... đảm bảo tiếng Anh sẽ lên. Nhiều chủ đề nên bạn có thể học được rất nhiều từ mới cũng như nắm bắt được kiến thức của nhiều ngành khác nhau.
 
-2. httl://edX.org: Các khóa học online miễn phí từ các trường đại học tốt nhất thế giới. Nói vậy đủ rồi ha.
+2. http://edX.org: Các khóa học online miễn phí từ các trường đại học tốt nhất thế giới. Nói vậy đủ rồi ha.
 
-3. httl://easyworldofenglish.com: Một website thiết kế với màu sắc ấn tượng đẹp gọn gàng cho người dùng, web cho phép bạn học cả ngữ pháp, phát âm, đọc và nghe tiếng anh cùng với một từ điển bằng các hình ảnh rất bắt mắt.
+3. http://easyworldofenglish.com: Một website thiết kế với màu sắc ấn tượng đẹp gọn gàng cho người dùng, web cho phép bạn học cả ngữ pháp, phát âm, đọc và nghe tiếng anh cùng với một từ điển bằng các hình ảnh rất bắt mắt.
 
-4. httl://Using.com: Tại Using.com, bạn sẽ tìm thấy một bộ sưu tập các công cụ và tài nguyên đáng kinh ngạc để học và giảng dạy ngôn ngữ như là một ngôn ngữ thứ hai, bao gồm một bảng chú giải thuật ngữ, tài liệu in và giáo trình.
+4. http://Using.com: Tại Using.com, bạn sẽ tìm thấy một bộ sưu tập các công cụ và tài nguyên đáng kinh ngạc để học và giảng dạy ngôn ngữ như là một ngôn ngữ thứ hai, bao gồm một bảng chú giải thuật ngữ, tài liệu in và giáo trình.
 
-5. httl://Everythingesl.net: 
+5. http://Everythingesl.net: 
 EverythingESL là một nơi tuyệt vời để tìm tài nguyên giảng dạy ESL, từ kế hoạch bài học để giảng dạy lời khuyên và các nguồn lực.
 
 6. http://www.colorincolorado.org/teaching-english-language-le…: Colorin Colorado có đầy đủ các thông tin hữu ích, các hoạt động và nguồn lực cho giáo viên tiếng Anh, đặc biệt là các giáo viên của lớp Mẫu giáo đến lớp ba. Tuy nhiên, hầu hết các hoạt động đều có thể được điều chỉnh cho đến trường trung học, một trang web đa dạng và hữu ích.
 http://www.bbc.co.uk/learningenglish/ Một loạt các hoạt động tuyệt vời để thực hành, một số liên quan đến các sự kiện hiện tại. Bao gồm video, câu đố, luyện tập từ vựng, thành ngữ, trò chơi ô chữ, và nhiều thứ khác.
 
-7. httl://a4esl.org
+7. http://a4esl.org
 Thực hành ngữ pháp và từ vựng cho tất cả các trình độ, bao gồm nhiều câu đố song ngữ dành cho người mới bắt đầu. Cũng bao gồm một link dành cho giáo viên, với các câu hỏi về cuộc trò chuyện, trò chơi và nhiều ý tưởng khác để đưa vào sử dụng trong lớp học.
 
-8. httl://abcya.com: Đây là trang web dành cho trẻ em, nhưng người lớn cũng có thể sử dụng tốt. Trang web bao gồm các trò chơi giáo dục được tổ chức theo cấp lớp, từ 1 đến 5, và đặc biệt tốt cho việc đánh vần và phát âm. Có trò chơi để luyện tập nguyên âm, chữ hoa và chữ thường, từ đồng nghĩa và từ trái nghĩa,...
+8. http://abcya.com: Đây là trang web dành cho trẻ em, nhưng người lớn cũng có thể sử dụng tốt. Trang web bao gồm các trò chơi giáo dục được tổ chức theo cấp lớp, từ 1 đến 5, và đặc biệt tốt cho việc đánh vần và phát âm. Có trò chơi để luyện tập nguyên âm, chữ hoa và chữ thường, từ đồng nghĩa và từ trái nghĩa,...
 
-9. httl://tv411.org
+9. http://tv411.org
 Trang web này bao gồm các video với người bản xứ giải thích các khái niệm đọc chủ yếu như đọc sách, tóm tắt và đọc nhanh, và các kỹ năng sống chủ chốt như ký hợp đồng và đọc nhãn thuốc. Sau mỗi video là một bài kiểm tra hiểu. Nhấp vào các tab màu xanh lam trên đầu hàng đầu cho các bài học về đọc, viết, từ vựng.
 
-10. httl://gcflearnfree.org/everydaylife
+10. http://gcflearnfree.org/everydaylife
 Một trang web được thiết kế tốt với hướng dẫn tương tác cho mọi thứ từ sử dụng máy ATM tới đọc nhãn thực phẩm. Nếu bạn nhấp vào biểu tượng trang chính và sau đó nhấp vào đọc, trang web cũng có tài nguyên dành cho người học tiếng Anh, bao gồm các câu chuyện để nghe và đọc cùng với từ điển hình ảnh.
 
-11. httl://languageguide.org/
+11. http://languageguide.org/
 Đây là một từ điển ảnh trực tuyến, với tất cả mọi thứ từ bảng chữ cái đến các bộ phận của cơ thể, chăn nuôi.
 
-12. elt.oup.com/learning_resources
+12. http://elt.oup.com/learning_resources
 Trang web này của Oxford University Press có các hoạt động để luyện tập chính tả, ngữ pháp, phát âm và nghe.
 
 13. https://www.voanews.com/: Nếu bạn học tiếng Anh, mà không biết đến kênh VOA thì quả là 1 thiếu sót hơi bị … nghiêm trọng. Bài tập hướng dẫn nghe VOA có thể khiến bạn phát cuồng vì VOA đó!
 
-14. Coursera (httl://coursera.org): Các khóa học online từ các trường đại học hàng đầu thế giới.
+14. Coursera (http://coursera.org): Các khóa học online từ các trường đại học hàng đầu thế giới.
 
 15. http://capl.washjeff.edu/: Từ điển bằng hình ảnh- dễ hiểu, dễ nhớ
 
@@ -76,7 +76,7 @@ ESLgold.com là kho lưu trữ lớn nhất trên thế giới miễn phí tiế
 
 34.httl://Dictionary.com: Trang web này không chỉ để tìm kiếm từ, mặc dù nó khá hữu ích trong chức năng đó. Dictionary.com cũng cung cấp một từ trong ngày, trò chơi, bản dịch, và nhiều hơn nữa.
 
-35. thesaurus.com: Giống như Dictionary.com, Thesaurus.com vượt xa sự tham khảo đơn giản, mang lại cảm hứng và vui vẻ dưới hình thức từ đồng nghĩa, từ sự kiện thú vị, và thậm chí là các xu hướng tìm kiếm.
+35. http://thesaurus.com: Giống như Dictionary.com, Thesaurus.com vượt xa sự tham khảo đơn giản, mang lại cảm hứng và vui vẻ dưới hình thức từ đồng nghĩa, từ sự kiện thú vị, và thậm chí là các xu hướng tìm kiếm.
 
 36. https://brians.wsu.edu/common-errors-in-english-usage/: Đọc Lỗi Thường gặp của Paul Brian là chức năng trên trang web này, và thậm chí có liên kết đến blog, lịch, và trang nhật ký một ngày của cuốn sách.
 
@@ -128,7 +128,7 @@ Diễn đàn dành cho giáo viên ESL và sinh viên trên khắp thế giới.
 
 59. http://inspirationlane.blogspot.com/: Inspiration Lane được thiết kế để là một hoạt động đọc sách tương tác để chia sẻ với toàn bộ lớp học tiếng Anh của bạn với nội dung học tập mới mỗi ngày.
 
-60. httl://outube: không thể bỏ qua! Từ từ viết tiếp nhé :D
+60. http://outube: không thể bỏ qua! Từ từ viết tiếp nhé :D
 
 Một số ứng dụng điện thoại để học tiếng Anh:
 Duolingo
